@@ -6,9 +6,8 @@ I know desserts of French, Italian and Israeli kitchen. Mastered a wide range of
 
 ### sKILLS
 #### Hard                       
-                             
-> * ***Good memory*** <p>                     
-> * ***Analitics abillity*** </p>                                                     
+> * ***Good memory***                     
+> * ***Analitics abillity***                                                 
 #### Soft
 > * ***Сommunicability***
 > * ***Coordinated work with campaing***
